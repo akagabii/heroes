@@ -8,3 +8,6 @@ Braian Almirón - 26 años - Lanús
 
 
 Carlos Guillen - 19 años - Buenos Aires
+
+
+Rolando Lisarazo - 30 años - Córdoba
