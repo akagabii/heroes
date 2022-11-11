@@ -1,4 +1,4 @@
 # HEROES
 
 ## Integrantes:
-Gabriel Tarelli - Ensenada
+Gabriel Tarelli - 19 Años - Ensenada
